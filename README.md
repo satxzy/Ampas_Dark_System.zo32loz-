@@ -1,1 +1,1 @@
-# Ampas_Dark_System.zo32loz-
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
